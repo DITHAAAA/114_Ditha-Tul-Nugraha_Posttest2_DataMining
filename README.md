@@ -1,1 +1,0 @@
-# 114_Ditha-Tul-Nugraha_Posttest2_DataMining
